@@ -7,3 +7,4 @@ However, with a few exceptions, there is seldom any harm in Donald's pranks. He 
 * poor
 As Donald says:
 > Hello. I'm Donald Duck! Pleased to meet you, miss.
+<img src="http://clipart-library.com/data_images/76029.gif"/>
