@@ -5,3 +5,5 @@ However, with a few exceptions, there is seldom any harm in Donald's pranks. He 
 * cartoon
 * explosive temper
 * poor
+As Donald says:
+> Hello. I'm Donald Duck! Pleased to meet you, miss.
